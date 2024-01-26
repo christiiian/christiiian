@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Christiiian 😁
+## Welcome to Christiiian's profile 😁
 
  <div>
    <a href="https://github.com/christiiian">
